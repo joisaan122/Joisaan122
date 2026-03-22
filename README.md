@@ -16,6 +16,7 @@ dni👉 proshippers. darkshippers. mapprides. prosaken. and other!
 always sitting alongside SMG4 area. or alongside the Bakery on pony town
 ------------------------
 cute core. weird core
+
 ESFP
 
 thats all i think ◔‸◔?
