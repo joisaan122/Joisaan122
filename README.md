@@ -5,7 +5,7 @@ my fav color is blue!
 
 fandoms im in👉 brawl stars. dandys world. tawog. cookie run oven break
 
-my favourite characters👉 byron. piper. and other👉 barley. rico. Sirius. najia. juju. bandage doctor. grey early cookie. baguette cookie. bassie. blot. yatta
+my favourite characters👉 byron. piper. and other👉 barley. rico. Sirius. najia. juju. bandage doctor. earl grey cookie. baguette cookie. bassie. blot. yatta
 
 my favourite games👉 brawl stars. dandys world. avatar creator. hybrid animals. pewdiepie tuber simulator. yandere simulator. pony town
 
