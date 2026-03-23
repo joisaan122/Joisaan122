@@ -13,7 +13,7 @@ im an artist ^_^ ! i draw on paper and sometimes i draw in digital apps. like ib
 
 dni👉 proshippers. darkshippers. mapprides. prosaken. toxics. and other more! 
 
-my fav ships👉 piper x rico. yatta x blot. byron x juju ( i dont like it so much ಥ_ಥ) colt x shelly. dark cacao cookie x holly berry cookie. grey early cookie x baguette cookie. poco x emz 
+my fav ships👉 piper x rico. yatta x blot. byron x juju ( i dont like it so much ಥ_ಥ) colt x shelly. dark cacao cookie x holly berry cookie. earl grey cookie x baguette cookie. poco x emz 
 
 always sitting alongside SMG4 area. or alongside the Bakery on pony town! 
 ------------------------
