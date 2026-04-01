@@ -27,6 +27,7 @@ in short :
 1. fav characters 👉 byron and piper
 2. fandom im in👉 brawl stars
 3. my fav ships 👉 piper x rico . yatta x blot. earl grey cookie x baguette cookie
+4. my fav games👉 brawl stars. pewdiepie tuber simulator. pony town. 
 
 thats all i think ◔‸◔?
 
