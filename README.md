@@ -1,34 +1,28 @@
-WELCOME o(≧▽≦)o!
+HAI. 
+im joisa or you can call me joisan ^_^ 
+my favorite color is blue 🩵
 
-✦┆MY NAME IS JOISA OR JOISAN. she/her. 
-✦┆my fav color is blue! 
+SHE-HER
+multi fandom ⚊ multi shipper
 
-✦┆fandoms im in👉 brawl stars. dandys world. tawog. cookie run oven break
+fandoms im in - brawl stars. tawog. htf. crk. crkob. dandys world
 
-✦┆my favourite characters👉 byron. piper. and other👉 barley. rico. Sirius. najia. juju. bandage doctor. earl grey cookie. baguette cookie. bassie. blot. yatta
+‧˚*･༓☾☽༓･*˚⁺‧͙
+ESFP----
 
-✦┆my favourite games👉 brawl stars. dandys world. avatar creator. hybrid animals. pewdiepie tuber simulator. yandere simulator. pony town
 
-✦┆im an artist ^_^ ! i draw on paper and sometimes i draw in digital apps. like ibis paint and clip studio paint and hipaint
-
-✦┆dni👉 proshippers. darkshippers. mapprides. prosaken. toxics. and other more! 
-
-✦┆my fav ships👉 piper x rico. yatta x blot. colt x shelly. dark cacao cookie x holly berry cookie. earl grey cookie x baguette cookie. poco x emz 
-
-✦┆always sitting alongside SMG4 area. or alongside the Bakery on pony town!
+in pony town you will see me sitting near from SMG4/ forsaken/ grace zone. or near from the bakery <) 
 -
-ミミ◦❧◦°˚°◦.¸¸◦°´*•.¸♡¸.•*´°◦¸¸.◦°˚°◦☙◦彡彡
 
-✦┆cute core. weird core
+ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
+cute core🍥 / weird core👁 / angel core🪽
+ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
 
-✦┆ESFP
+im in artist! i draw on paper ✏️ and sometime i draw on digital apps . like ibis paint and hipaint and clip studio paint 🎨 ! 
 -
-in short :
-1. fav characters 👉 byron and piper
-2. fandom im in👉 brawl stars
-3. my fav ships 👉 piper x rico . yatta x blot. earl grey cookie x baguette cookie
-4. my fav games👉 brawl stars. pewdiepie tuber simulator. pony town. 
+
+im shy person sorry if i didn't answer to you in pt ಥ_ಥ
+-
 
 thats all i think ◔‸◔?
-
 
